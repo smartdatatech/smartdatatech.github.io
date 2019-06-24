@@ -1,1 +1,0 @@
-# smartdatatech.github.io
